@@ -1,0 +1,1 @@
+practice 아멘다
